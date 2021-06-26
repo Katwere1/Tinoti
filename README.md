@@ -1,0 +1,2 @@
+# Tinoti
+Promoting African talent
